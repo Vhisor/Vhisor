@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning C++ and Python
 - 💞️ I’m looking to collaborate on C++ projects
-- 📫 How to reach me: +233 531 777 529 
+- 📫 How to reach me: selasidesmond05@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: it's that simple for all you know
 
